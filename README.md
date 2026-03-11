@@ -43,6 +43,3 @@ https://www.linkedin.com/in/alejandro-henao-ochoa-113237368
 
 Dev.to:  
 https://dev.to/originfv1
-
-YouTube:  
-https://www.youtube.com/@originfv1
